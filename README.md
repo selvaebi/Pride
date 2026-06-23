@@ -1,1 +1,1 @@
-# Pride
+# PRIDE
